@@ -21,7 +21,7 @@ AKA A River Rat!
 ![IMG-1118](https://user-images.githubusercontent.com/106691447/180509111-925e6dd4-1b6d-4f3b-8459-71fc7e56d1c6.jpg)
 
 
-### What do you think? See the resemblence? Leave them in the comments!
+### What do you think? See the resemblence? 
   
   
  ###### More pics of Remington growing up just for fun!! 🤩
