@@ -1,11 +1,12 @@
 # Remington The Capybara Lookalike
 ## Who is Remington?
 <sub> Remington is my first dog I got on my own at the age of 6 weeks old. He is a mix of Sharpei, Terrier, Chow, Bulldog. He is very smart, docile, and just now has learned to bark at the age of 6 years old. I mean look at that FACE!!! :heart_eyes:
+  
   ![Remington](https://user-images.githubusercontent.com/106691447/180506762-8ccce9d9-1b5b-453b-9466-4540c39f106b.jpg)
  
-<sup> I took Remington to a creek in the Atlanta area called Whitewater Creek where a bunch of ppl bring thier dogs to this doggy beach thats off of the Chattahooche River. What's cool about the place is that all owners let thier pups run around offleash and you have access nearby for hiking trails. People only know about this place by word of mouth and you drive through a neigborhood of multi-million dollar homes to get there. It's a pretty cool hidden gem. </sup>
+<sup> I took Remington to a creek in the Atlanta area called Whitewater Creek where a bunch of ppl bring thier dogs to this doggy beach that's off of the Chattahooche River. What's cool about the place is that all owners let thier pups run around offleash and you have access to nearby hiking trails. People only know about this place by word of mouth and you drive through a neigborhood of multi-million dollar homes to get there. It's a pretty cool hidden gem. </sup>
 
-<sup> While Remington was running around in the river, someone approached me asking on a serious note that he has never seen a dog like that before and asked if he was a Capybara. I was like uhh what the heck is that! I googled what this was and was flabbergasted and shocked about the funny resemblence. Any he has the nickname Capy :rofl: </sup>
+<sup> While Remington was running around in the river, someone approached me asking on a serious note that he has never seen a dog like that before and asked if he was a Capybara. I was like uhh what the heck is that! I googled what this was and was flabbergasted and shocked about the funny resemblence. And to this day he has the nickname Capy :rofl: </sup>
 
 ## What is a Capybara??
 <sub> [The capybara is a giant cavy rodent native to South America. It is the largest living rodent and a member of the genus Hydrochoerus](https://www.google.com/search?q=caoybara&ei=bOPaYvHVG9-jqtsPn-OSoAQ&ved=0ahUKEwjxu9bFh435AhXfkWoFHZ-xBEQQ4dUDCA4&uact=5&oq=caoybara&gs_lcp=Cgdnd3Mtd2l6EAMyDQguELEDEIMBENQCEEMyCggAELEDEIMBEAoyCggAELEDEIMBEAoyBwgAELEDEAoyCggAELEDEIMBEAoyCggAELEDEIMBEAoyCggAELEDEMkDEAoyBQgAEJIDMgoIABCxAxCDARAKMgoIABCxAxCDARAKOgUILhCRAjoICC4Q1AIQkQI6EQguEIAEELEDEIMBEMcBENEDOgsIABCABBCxAxCDAToOCC4QgAQQxwEQ0QMQ1AI6BAguEEM6BQgAEJECOggIABCxAxCDAToICAAQgAQQsQM6CwguEIAEELEDENQCOgsIABCxAxCDARDJAzoFCAAQsQM6EAguEIAEEMcBENEDENQCEAo6BwgAEIAEEAo6BQgAEIAEOgcILhCABBAKOggILhCABBDUAkoECEEYAEoECEYYAFAAWLoHYKYIaABwAXgAgAHdAogB9wiSAQcwLjUuMC4xmAEAoAEBwAEB&sclient=gws-wiz). </sub>
